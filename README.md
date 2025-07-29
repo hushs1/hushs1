@@ -31,9 +31,4 @@
 
 . dc: hush_s1
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![4aa0954cb1dad9b5d8aa345e1a9534f5](https://github.com/user-attachments/assets/395a8d06-c23f-4404-b93c-d446c6479ddd)
-
-
-
-
-
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![4aa0954cb1dad9b5d8aa345e1a9534f5](https://github.com/user-attachments/assets/395a8d06-c23f-4404-b93c-d446c6479ddd
