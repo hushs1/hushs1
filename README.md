@@ -9,11 +9,11 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ٬  ✧ ,,   🌫  ◜｡ ``    𓍱۰.   ་  🌫  ✧
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi am not a native eng speaker, keep that in mind))))
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi am not a native eng speaker, keep that in mind))))
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi often ignore people cuz idk what to answer.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi often ignore people cuz idk what to answer.
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤalways in afk, write in private messages.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤalways in afk, write in private messages.
 
 <img width="3056" height="718" alt="ааааааааааа" src="https://github.com/user-attachments/assets/f9c33bdf-fc8d-4e23-a072-eebef9ce5f51" />
 ✧ 𝑓𝑎𝑛𝑑𝑜𝑚𝑠: 
