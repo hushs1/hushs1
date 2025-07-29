@@ -20,7 +20,7 @@
 
 ✧ 𝑓𝑎𝑛𝑑𝑜𝑚𝑠: 
 
-. outlast, resident evil, devil may cry, the walking dead, detroit: become human, no more room in hell.
+. outlast, resident evil, devil may cry, the walking dead, detroit: become human, no more room in hell. 
 
 . DC, back to the future, eyewitness, friday the 13th, creepypasta(?).
 
