@@ -1,4 +1,4 @@
-![647f0bf61d4aaa2d65034023e472e695](https://github.com/user-attachments/assets/0bb3993a-caec-4062-91ea-03836defd599)
+![6eb44c698617e7420d9ab484ccd23247](https://github.com/user-attachments/assets/8594684f-af25-4deb-9458-9a46d802b044)
 
 
                                                   ,,   blur - girls and boys  ,,
