@@ -18,8 +18,12 @@
 
 <img width="3056" height="718" alt="ааааааааааа" src="https://github.com/user-attachments/assets/f9c33bdf-fc8d-4e23-a072-eebef9ce5f51" />
 ✧ 𝑓𝑎𝑛𝑑𝑜𝑚𝑠: 
+. outlast, resident evil, devil may cry, the walking dead, detroit: become human, no more room in hell.
+. DC, back to the future, eyewitness, friday the 13th, creepypasta(?).
 
-. 
-.
+✧ 𝑤ℎ𝑒𝑟𝑒 𝑦𝑜𝑢 𝑐𝑎𝑛 𝑓𝑖𝑛𝑑 𝑚𝑒:
+. tg: ????
+. dc: hush_s1
+
 
 ![4aa0954cb1dad9b5d8aa345e1a9534f5](https://github.com/user-attachments/assets/17bd594a-fcc8-4e38-9972-728f1f6511d4)
