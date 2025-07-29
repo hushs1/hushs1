@@ -33,5 +33,6 @@
 
 . dc: hush_s1
 
-![f64b0d7eb621fd8afae753e9e9352c56](https://github.com/user-attachments/assets/8780aefb-5d5e-4ad7-b36a-29c514724e49)
+![5a19f87b24129cdee7dd6ff8f04b7edd](https://github.com/user-attachments/assets/9d83faf9-a0a9-4b2d-8852-527525169f01)
+
 
