@@ -10,9 +10,10 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ٬  ✧ ,,   🌫  ◜｡ ``    𓍱۰.   ་  🌫  ✧
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi am not a native eng speaker, keep that in mind))))
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi am not a native eng speaker, keep that in mind)))) 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi often ignore people cuz idk what to answer.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi often ignore people cuz idk what to answer. ![5f00fc49cc5767211a071a07b018642c](https://github.com/user-attachments/assets/78cf97ec-55d0-4564-9aef-16e1a2d433c7)
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤalways in afk, write in private messages.
 
