@@ -18,7 +18,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![44f28c48d01c0c230f5b92287da5b109](https://github.com/user-attachments/assets/0ae959bf-d977-4040-94f3-f31396c11756)
 <img width="3056" height="718" alt="ааааааааааа" src="https://github.com/user-attachments/assets/f9c33bdf-fc8d-4e23-a072-eebef9ce5f51" />
 
-✧ 𝑓𝑎𝑛𝑑𝑜𝑚𝑠: 
+✧ 𝑓𝑎𝑛𝑑𝑜𝑚𝑠: 💨
 
 . outlast, resident evil, devil may cry, the walking dead, detroit: become human, no more room in hell. 
 
