@@ -15,7 +15,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi often ignore people cuz idk what to answer. 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤalways in afk, write in private messages.
-ㅤㅤㅤㅤㅤㅤㅤㅤ![white-glitch](https://github.com/user-attachments/assets/5bb17e2d-471f-46f5-a384-eec8dcbd9069) ![white-glitch](https://github.com/user-attachments/assets/00643ccd-998c-46be-a75a-40d2205397e0)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![white-glitch](https://github.com/user-attachments/assets/5bb17e2d-471f-46f5-a384-eec8dcbd9069) ![white-glitch](https://github.com/user-attachments/assets/00643ccd-998c-46be-a75a-40d2205397e0)
 
 
 
