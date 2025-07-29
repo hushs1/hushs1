@@ -1,11 +1,18 @@
 <img width="3056" height="718" alt="аааааа" src="https://github.com/user-attachments/assets/97397462-f200-4872-bde6-4adc4c30c173" />
- .                                               ,,   𝘣𝘭𝘶𝘳 - 𝘨𝘪𝘳𝘭𝘴 𝘢𝘯𝘥 𝘣𝘰𝘺𝘴   ,,
+                                                ,,   𝘣𝘭𝘶𝘳 - 𝘨𝘪𝘳𝘭𝘴 𝘢𝘯𝘥 𝘣𝘰𝘺𝘴   ,,
+
                                                          alex & hush
+
                                                            𝗿𝘂𝘀/𝗲𝗻𝗴 
+
                                                           zZz zzzZZ
+
                                            ٬٬  ✧ ,,   🌫  ◜｡ ``    𓍱۰.   ་  🌫  ✧
+
                                         i am not a native eng speaker, keep that in mind))
+
                                           i often ignore people cuz idk what to answer.
+
                                             always in afk, write in private messages.
 
 
