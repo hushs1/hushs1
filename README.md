@@ -20,9 +20,9 @@
 
 ✧ 𝑓𝑎𝑛𝑑𝑜𝑚𝑠: 💨
 
-. outlast, resident evil, devil may cry, the walking dead, detroit: become human, no more room in hell, pony town, postal 2, cult of the lamb, phasmophobia
+. outlast, resident evil, devil may cry, the walking dead, detroit: become human, no more room in hell, phasmophobia
 
-. DC, back to the future, eyewitness, friday the 13th, creepypasta(?), 
+. DC, eyewitness, friday the 13th, creepypasta(?), 
 
 ✧ 𝑤ℎ𝑒𝑟𝑒 𝑦𝑜𝑢 𝑐𝑎𝑛 𝑓𝑖𝑛𝑑 𝑚𝑒:
 
